@@ -1,4 +1,4 @@
-
+top king legacy Script is the best king legacy Script, featuring auto-upgrade and auto-collect. Safe and powerful for all your needs.
 
 
 
